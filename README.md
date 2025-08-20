@@ -1,1 +1,1 @@
-jangan di baca ya!! hehe
+saba no shashin dake
